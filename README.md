@@ -6,4 +6,5 @@ A brilliant doctor saves a young boy's life even if it means ruining his career,
 **Monster** is a masterpiece for me because the characters felt real and aren't flat like most of the other series. It covers the other side characters, giving them fleshed out backstories. It also tackles good and evil in a philosopical way. *is evil born or made?* it truly explains what it means to be a human.
 > "The only thing all humans are equal in is death".
 
-<img width="448" height="684" alt="johan" src="https://github.com/user-attachments/assets/99d65ec2-105b-4249-ac39-b87107a3a23e" />
+<img width="447" height="447" alt="jhn" src="https://github.com/user-attachments/assets/9b64b130-224b-4236-aec2-86968df115b3" />
+
